@@ -1,2 +1,2 @@
 # New-World
-Bringing change
+Bringing new change to the world with breakthrough innovation.
